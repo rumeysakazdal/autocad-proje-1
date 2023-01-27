@@ -1,0 +1,3 @@
+ASUS
+KAZDAL 
+27 Ocak 2023 Cuma  22:19:46
